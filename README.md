@@ -9,3 +9,5 @@ https://onlinelibrary.wiley.com/mwg-internal/de5fs23hu73ds/progress?id=cpQREd-mZ
 
 The impact of high-frequency trading on volatility Evidence from the Italian market   V. Caivano
 https://static1.squarespace.com/static/531afe04e4b0b17f973f5962/t/55b9c20fe4b0d0f5f5cadc20/1438237199864/SSRN-id2062926+22July2015.pdf
+http://www.nasdaqbaltic.com/files/riga/stipendiju_konkurss/2013/Laube_Malcenieks.pdf
+http://lup.lub.lu.se/mwg-internal/de5fs23hu73ds/progress?id=dJ37snA8d_XcjEP-rYyScHPGkpRKU8eRm19S2m5Y8Xw,&dl
