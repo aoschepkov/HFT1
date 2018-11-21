@@ -6,3 +6,5 @@ https://repository.nu.edu.sa/bitstream/123456789/2206/1/High%20frequency%20tradi
 http://citeseerx.ist.psu.edu/viewdoc/download?doi=10.1.1.186.8858&rep=rep1&type=pdf
 
 https://onlinelibrary.wiley.com/mwg-internal/de5fs23hu73ds/progress?id=cpQREd-mZOTxsd_zFdyv4QP6Zg5L1_sQZoZG-5mqq2Y,&dl
+
+The impact of high-frequency trading on volatility Evidence from the Italian market   V. Caivano
